@@ -1,6 +1,13 @@
 # Mans CV
 # Platon Martynov
 
+Platon Martynov (20-07-2004)
+
+Adrese: Kleistu iela 11, Rīga LV-1067
+
+Mob. tālr.: +37125876686
+
+E-pasts: platon.martynov20@mail.ru
 
 ## Izglītība
 
